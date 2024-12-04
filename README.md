@@ -1,1 +1,0 @@
-# guiapractica10
